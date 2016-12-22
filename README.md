@@ -1,2 +1,0 @@
-# beegeequilts.com
-BeeGeeQuilts.com
